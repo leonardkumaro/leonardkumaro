@@ -8,4 +8,4 @@ I have a strong interest in **AI Enthusiast & Data Enthusiast** di [Dicoding](ht
 
 I am responsible for data processing and have been equipped with a [Belajar Dasar Data Science Certificate](https://github.com/user-attachments/files/18814734/sertifikat_belajar_dasar_data_science.pdf).<br>
 
-If you are interested in connecting with me, feel free to follow my [Linkedin](https://www.linkedin.com/in/gilang-adhan/) profile!
+If you are interested in connecting with me, feel free to follow my [Linkedin](https://www.linkedin.com/in/leonardkumaro/) profile!
